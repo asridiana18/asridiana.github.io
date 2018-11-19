@@ -22,3 +22,4 @@ Universitas   : Universitas Islam Negeri Sultan Syarif Kasim Riau
  ![Image](http://riauterbit.com/assets/berita/original/940154884-lll.jpg)
 
 
+Jangan Lupa Bersyukur Hari Ini😊😊
